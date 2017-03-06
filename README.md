@@ -1,0 +1,2 @@
+# Metody-Optymalizacji
+Wolo lolo
